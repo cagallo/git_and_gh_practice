@@ -1,0 +1,5 @@
+-skiing
+-hiking
+-ballet (dance in general)
+-concerts
+-volleyball
